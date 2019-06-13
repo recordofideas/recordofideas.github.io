@@ -3,7 +3,7 @@ layout: post
 title: Going Through Changes
 ---
 
-I recently saw Rocketman. The film wasn't good, but it had a quote that I've been reflecting on. "You got to kill the person you were born to be in order to become the person you want to be." I don't think that is true. I'm happy with the person I am, but I've tweaked my idea of who that is for basically my entire life. It hasn't always been gradual, but to say that I 'killed' my old self wouldn't be true.
+I recently saw [Rocketman](https://www.imdb.com/title/tt2066051/). The film wasn't good, but it had a quote that I've been reflecting on. "You got to kill the person you were born to be in order to become the person you want to be." I don't think that is true. I'm happy with the person I am, but I've tweaked my idea of who that is for basically my entire life. It hasn't always been gradual, but to say that I 'killed' my old self wouldn't be true.
 
 I understand that identity is a hot topic nowadays. I've [written about it in passing](https://twitter.com/samgdf/status/1067893953217929222), but for more fully formed thoughts [Reggie](https://twitter.com/HipCityReg) and [Michael](https://twitter.com/mhdempsey) are good sources. My background is a bit different, but I wouldn't have that much different to say. Instead, I'd like to focus on growth. Not the identity itself, but how one transitions from one place to another.
 
